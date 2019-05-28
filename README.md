@@ -1,5 +1,5 @@
-# Sup_OS
+# AnanOS
 
-this is an os
+this is the best operating system i ever saw
 
-over the pronunciation of the name are still wondering great minds...
+'ANANOS' is brilliant name
